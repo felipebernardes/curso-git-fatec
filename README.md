@@ -1,4 +1,4 @@
-# Fedipe Bernardes
+# Feqipe Bernardes
 
 ## Estado Civil
 - Namorando
